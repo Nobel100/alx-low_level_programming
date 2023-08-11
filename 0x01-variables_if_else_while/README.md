@@ -1,0 +1,1 @@
+friday mondatory tasks	
